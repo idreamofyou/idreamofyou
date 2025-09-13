@@ -1,4 +1,6 @@
-## Hi there 👋
+# 𝙝𝙚𝙡𝙡𝙤~
+─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
+-𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜 𝚒𝚗 𝚖𝚢 𝚟𝚎𝚒𝚗𝚜....-
 
 <!--
 **idreamofyou/idreamofyou** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
