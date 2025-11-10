@@ -12,3 +12,8 @@ former-anti! 🧩🥀
 ## free to interact with! will ignore any disputes
 
 ![alt text](pinkbannerrounded.png)
+
+# scroll 4 stuff :P
+─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
+
+
