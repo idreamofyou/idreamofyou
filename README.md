@@ -18,4 +18,5 @@ former-anti! 🧩🥀
 
 (epilepsy warning)
 
-twilightsparkle.gif
+![twilightsparkle (1)](https://github.com/user-attachments/assets/cea5eb2e-13ca-452a-80fa-c1bb16fcd7e0)
+
