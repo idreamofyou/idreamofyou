@@ -11,4 +11,4 @@ former-anti! 🧩🥀
   
 ## free to interact with! will ignore any disputes
 
-![alt text](2819-pink.png)
+![alt text](pinkbannerrounded.png)
