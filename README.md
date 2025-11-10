@@ -16,7 +16,8 @@ former-anti! 🧩🥀
 ### scroll 4 stuff :P
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 
-(epilepsy warning)
+(strobe warning)
 
-![twilightsparkle (1)](https://github.com/user-attachments/assets/cea5eb2e-13ca-452a-80fa-c1bb16fcd7e0)
+![twilightsparkle (1)](https://github.com/user-attachments/assets/cea5eb2e-13ca-452a-80fa-c1bb16fcd7e0) <img src="https://github.com/idreamofyou/idreamofyou/blob/main/ilovemy.webp?raw=true" alt="ilovemy.webp"/><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/36be50e4-6a93-40e8-b099-83a7df4531fb" />
+
 
