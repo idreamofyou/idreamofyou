@@ -16,4 +16,6 @@ former-anti! 🧩🥀
 ### scroll 4 stuff :P
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 
+(epilepsy warning)
 
+omniblinkie.webp ilovemy.webp ilovemy.webp twilightsparkle.gif fanficfanatic.webp bestonlinebuddies.gif awkward.webp idreaminpixels.webp ilovepurple.gif pinkpinkilovepink.webp strawberrysunday.gif smiley.gif
