@@ -18,7 +18,7 @@ former-anti! 🧩🥀
 
 (strobe warning)
 
-![alt text](omniblinkie.webp)![alt text](fanficfanatic.webp)![alt text](ilovemy.webp)![alt text](bestonlinebuddies.gif)![alt text](awkward.webp)![alt text](brainfog.gif) ![alt text](idreaminpixels.webp)![alt text](pinkpinkilovepink.webp)![alt text](ilovepurple.gif)![alt text](idreaminpixels.webp)![alt text](strawberrysunday.gif)![alt text](smiley.gif)
+![alt text](omniblinkie.webp)![alt text](fanficfanatic.webp)![alt text](ilovemy.webp)![alt text](bestonlinebuddies.gif)![alt text](awkward.webp)![alt text](brainfog.gif)![alt text](pinkpinkilovepink.webp)![alt text](ilovepurple.gif)![alt text](idreaminpixels.webp)![alt text](strawberrysunday.gif)![alt text](smiley.gif)
 
 
 
