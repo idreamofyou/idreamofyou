@@ -5,7 +5,7 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
 
 🧩🥀
 
-  + interests: blue-eyed samurai, BNA, hannibal, the good place, new amsterdam, KDH, carmen sandiego, silent hill f, purrgatory
+  + interests: blue-eyed samurai, BNA, hannibal, the good place, new amsterdam, KDH, carmen sandiego, silent hill f, purrgatory, doodle world
   + everyone is welcome here! can disagree, as long as you're civil :)
   + will mostly be sitting near the tree 🌳
   
