@@ -1,6 +1,6 @@
 # 𝙝𝙚𝙡𝙡𝙤~
 
-# ![](https://komarev.com/ghpvc/?username=your-github-username&label=views+:3&color=fc0390&base=-1038439)
+# ![](https://komarev.com/ghpvc/?username=your-github-username&label=views+:3&color=fc0390&base=-1038438)
 ^ reset 11/24/25 because it was weird lol
 
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
