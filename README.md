@@ -1,6 +1,6 @@
 # 𝙝𝙚𝙡𝙡𝙤~
 
-![](https://komarev.com/ghpvc/?username=your-github-username&label=peepers&color=fc0390)
+# ![](https://komarev.com/ghpvc/?username=your-github-username&label=cuties&color=fc0390)
 
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 
