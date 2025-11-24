@@ -1,7 +1,7 @@
 # 𝙝𝙚𝙡𝙡𝙤~
 
-# ![](https://komarev.com/ghpvc/?username=your-github-username&label=views+:3&color=fc0390&base=-1038438)
-^ reset 11/24/25 because it was weird lol
+# ![](https://komarev.com/ghpvc/?username=your-github-username&label=views+:3&color=fc0390)
+^ most of these are me updating lol not actually this high
 
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 
