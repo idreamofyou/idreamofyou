@@ -5,6 +5,8 @@
 # ![](https://komarev.com/ghpvc/?username=your-github-username&label=views+:3&color=fc0390)
 ^ weird lol it's not actually this high 😝
 
+![alt text](pinkstarsdivider.webp)
+
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 
 ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜 𝚒𝚗 𝚖𝚢 𝚟𝚎𝚒𝚗𝚜....}}$
@@ -22,6 +24,7 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
 ## free to interact with! will ignore any disputes
 
 ![alt text](shootingstardivider.gif)
+
 
 ### scroll 4 stuff :P
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
