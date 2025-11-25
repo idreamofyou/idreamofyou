@@ -1,5 +1,6 @@
- <p align="center">
-![alt text](sparkles1.gif)
+<p align="center">
+<img ![alt text](sparkles1.gif)>
+</p>
 
 # 𝙝𝙚𝙡𝙡𝙤~
 
