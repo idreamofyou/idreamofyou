@@ -1,3 +1,4 @@
+ <p align="center">
 ![alt text](sparkles1.gif)
 
 # 𝙝𝙚𝙡𝙡𝙤~
