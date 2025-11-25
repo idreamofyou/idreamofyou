@@ -12,7 +12,9 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
 ![alt text](kaomoji1.gif)
 
   + interests: blue-eyed samurai, BNA, hannibal, the good place, new amsterdam, KDH, carmen sandiego, silent hill f, purrgatory, doodle world
+  
   + everyone is welcome here! civils welcome :)
+  
   + will mostly be sitting near the protree 🌳
   
 ## free to interact with! will ignore any disputes
