@@ -21,7 +21,7 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
   
 ## free to interact with! will ignore any disputes
 
-![alt text](pinkbannerrounded.png)
+![alt text](shootingstardivider.gif)
 
 ### scroll 4 stuff :P
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
