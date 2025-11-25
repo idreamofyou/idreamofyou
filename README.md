@@ -25,8 +25,12 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
 ### ˚ʚ♡ɞ˚ yumes! (sharing) ˚ʚ♡ɞ˚
   - ${\textsf{\color{#fc0394}hinako!+(silent+hill+f)}}$
   ![alt text](hinakorabbitcute.png)
-  ˚ʚ♡ɞ˚
+  
   - ${\textsf{\color{#fc0394}mizu!+(blue+eye+samurai)}}$
+
+### ˚ʚ♡ɞ˚ kins! ˚ʚ♡ɞ˚
+  - ${\textsf{\color{#fc0394}twilight+sparkle!}}$
+  - ${\textsf{\color{#fc0394}sakuko+(silent+hill+f)}}$
   
 
 
