@@ -20,10 +20,12 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
   + will mostly be sitting near the protree 🌳
 
   + former anti ❤‍🩹  
+
+  ![alt text](shootingstardivider.gif)
   
 ## free to interact with! will ignore any disputes
 
-![alt text](shootingstardivider.gif)
+![alt text](swirlsdivider.webp)
 
 
 ### scroll 4 stuff :P
