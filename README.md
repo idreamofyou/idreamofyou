@@ -28,7 +28,7 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
 
 (strobe warning)
 
-![alt text](omniblinkie.webp)![alt text](sleepyseal.webp)![alt text](sweetdreams.webp)![alt text](dreaming.webp)![alt text](galaxyblinkie.webp![alt text](fanficfanatic.webp)![alt text](ilovemy.webp)![alt text](bestonlinebuddies.gif)![alt text](awkward.webp)![alt text](brainfog.gif)![alt text](pinkpinkilovepink.webp)![alt text](ilovepurple.gif)![alt text](idreaminpixels.webp)![alt text](strawberrysunday.gif)![alt text](smiley.gif)![alt text](blinkiesCafe-d5.gif)![alt text](ignoranceisbliss.webp)![alt text](ilovethesea.webp)![alt text](mildlyoffensive.webp)![alt text](ponycollector.webp)![alt text](twiblinkie.webp)![alt text](twinkletwinkle.webp)![alt text](usahanablinkie.webp)![alt text](whaleofatime.webp)![alt text](yayaya.webp)![alt text](belladona.gif)
+![alt text](omniblinkie.webp)![alt text](sleepyseal.webp)![alt text](sweetdreams.webp)![alt text](dreaming.webp)![alt text](galaxyblinkie.webp)![alt text](fanficfanatic.webp)![alt text](ilovemy.webp)![alt text](bestonlinebuddies.gif)![alt text](awkward.webp)![alt text](brainfog.gif)![alt text](pinkpinkilovepink.webp)![alt text](ilovepurple.gif)![alt text](idreaminpixels.webp)![alt text](strawberrysunday.gif)![alt text](smiley.gif)![alt text](blinkiesCafe-d5.gif)![alt text](ignoranceisbliss.webp)![alt text](ilovethesea.webp)![alt text](mildlyoffensive.webp)![alt text](ponycollector.webp)![alt text](twiblinkie.webp)![alt text](twinkletwinkle.webp)![alt text](usahanablinkie.webp)![alt text](whaleofatime.webp)![alt text](yayaya.webp)![alt text](belladona.gif)
 
 
 ### ˚ʚ♡ɞ˚ yumes! (sharing) ˚ʚ♡ɞ˚
