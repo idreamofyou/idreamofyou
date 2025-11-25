@@ -17,7 +17,11 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
   
 ## free to interact with! will ignore any disputes
 
-![alt text](pinkbannerrounded.png)
+.my-surface img {
+  display: flex ![alt text](pinkbannerrounded.png);
+  align-items: center ![alt text](pinkbannerrounded.png);
+  justify-content: center ![alt text](pinkbannerrounded.png);
+
 
 ### scroll 4 stuff :P
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
