@@ -52,9 +52,9 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
 ## ˚ʚ♡ɞ˚ tracks :> ˚ʚ♡ɞ˚
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 
-[<img width="182" height="182" alt="Screenshot 2025-11-25 12 53 05 AM (1)" src="https://github.com/user-attachments/assets/98e5c9c6-0cd4-447f-be35-85e98ac5b77d" />](https://open.spotify.com/track/2ygvZOXrIeVL4xZmAWJT2C)
+[<img width="182" height="182" alt="Screenshot 2025-11-25 12 53 05 AM (1)" src="https://github.com/user-attachments/assets/98e5c9c6-0cd4-447f-be35-85e98ac5b77d" />](https://open.spotify.com/track/2ygvZOXrIeVL4xZmAWJT2C)[<img width="182" height="182" alt="Screenshot 2025-11-25 12 53 23 AM (1)" src="https://github.com/user-attachments/assets/7609cd3c-1285-4e6c-aaec-e2de611854ab" />](https://open.spotify.com/track/73vlEPZBb263PIiIJgOvZo)
 
-[<img width="182" height="182" alt="Screenshot 2025-11-25 12 53 23 AM (1)" src="https://github.com/user-attachments/assets/7609cd3c-1285-4e6c-aaec-e2de611854ab" />](https://open.spotify.com/track/73vlEPZBb263PIiIJgOvZo)
+~ click the pics above :3 ^^
 
 ![notedivider](https://github.com/user-attachments/assets/41aa3fb1-3aa3-4d0a-b408-0172dff7bcb0)
 
