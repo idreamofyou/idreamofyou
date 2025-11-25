@@ -56,7 +56,7 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
 
 [**always the same - tennis**](https://open.spotify.com/track/73vlEPZBb263PIiIJgOvZo)
 
-<img src="https://github.com/idreamofyou/idreamofyou/blob/main/Screenshot%202025-11-25%2012.53.05%20AM.png?raw=true" alt="Screenshot 2025-11-25 12.53.05 AM.png"/><img width="182" height="182" alt="image" src="https://github.com/user-attachments/assets/bdcc2e78-777a-4624-96d2-24d833d6d859" /><img src="https://github.com/idreamofyou/idreamofyou/blob/main/Screenshot%202025-11-25%2012.53.23%20AM.png?raw=true" alt="Screenshot 2025-11-25 12.53.23 AM.png"/><img width="182" height="182" alt="image" src="https://github.com/user-attachments/assets/f5812eab-b861-4a6a-ac53-0a94342a4920" />
+<img width="182" height="182" alt="Screenshot 2025-11-25 12 53 05 AM (1)" src="https://github.com/user-attachments/assets/98e5c9c6-0cd4-447f-be35-85e98ac5b77d" /><img width="182" height="182" alt="Screenshot 2025-11-25 12 53 23 AM (1)" src="https://github.com/user-attachments/assets/7609cd3c-1285-4e6c-aaec-e2de611854ab" />
 
 
 
