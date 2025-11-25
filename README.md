@@ -37,7 +37,8 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
   
   - ${\textsf{\color{#fc0394}𝚜𝚊𝚔𝚞𝚔𝚘 (𝚜𝚒𝚕𝚎𝚗𝚝 𝚑𝚒𝚕𝚕 𝚏)}}$
 
-<img align="left" chibitwibg.png>
+<img src="blob:chrome-untrusted://media-app/ce7a748b-46a7-489e-87de-69122c1a9cc6" alt="chibitwibg.png"/>
+
 ![alt text](sparkles1.gif)
 
 
