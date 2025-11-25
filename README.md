@@ -28,7 +28,7 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
 ![alt text](stardivider.gif)
 
 
-### scroll 4 stuff :P
+## ### scroll 4 stuff :P
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 
 ***##(strobe warning)##***
