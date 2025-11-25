@@ -23,9 +23,9 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
 ![alt text](omniblinkie.webp)![alt text](fanficfanatic.webp)![alt text](ilovemy.webp)![alt text](bestonlinebuddies.gif)![alt text](awkward.webp)![alt text](brainfog.gif)![alt text](pinkpinkilovepink.webp)![alt text](ilovepurple.gif)![alt text](idreaminpixels.webp)![alt text](strawberrysunday.gif)![alt text](smiley.gif)
 
 ### ˚ʚ♡ɞ˚ yumes! (sharing) ˚ʚ♡ɞ˚
-    ~ 
+    ~ ${\textsf{\color{#fc0394}hinako!+(silent+hill+f)}}$
     
-    ~
+    ~${\textsf{\color{#fc0394}mizu!+(blue+eye+samurai)}}$
     
 
 
