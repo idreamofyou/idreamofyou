@@ -25,7 +25,7 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
   
 ## free to interact with! will ignore any disputes
 
-![alt text](swirlsdivider.webp)
+![alt text](stardivider.gif)
 
 
 ### scroll 4 stuff :P
@@ -47,6 +47,8 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
 
   - ${\textsf{\color{#fc0394}𝚝𝚠𝚒𝚕𝚒𝚐𝚑𝚝 𝚜𝚙𝚊𝚛𝚔𝚕𝚎!}}$
   - ${\textsf{\color{#fc0394}𝚜𝚊𝚔𝚞𝚔𝚘 (𝚜𝚒𝚕𝚎𝚗𝚝 𝚑𝚒𝚕𝚕 𝚏)}}$
+
+  ![alt text](swirlsdivider.webp)
   
  ![alt text](sparkles1.gif)
 
