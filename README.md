@@ -34,9 +34,9 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
 
 ### ˚ʚ♡ɞ˚ kins! ˚ʚ♡ɞ˚
   - ${\textsf{\color{#fc0394}𝚝𝚠𝚒𝚕𝚒𝚐𝚑𝚝 𝚜𝚙𝚊𝚛𝚔𝚕𝚎!}}$
+  -  ![alt text](chibitwibg.png)
   
   - ${\textsf{\color{#fc0394}𝚜𝚊𝚔𝚞𝚔𝚘 (𝚜𝚒𝚕𝚎𝚗𝚝 𝚑𝚒𝚕𝚕 𝚏)}}$
-  ![alt text](chibitwibg.png)
  ![alt text](sparkles1.gif)
 
 
