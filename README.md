@@ -3,7 +3,7 @@
 # 𝙝𝙚𝙡𝙡𝙤~
 
 # ![](https://komarev.com/ghpvc/?username=your-github-username&label=views+:3&color=fc0390)
-^ most of these are me updating lol not actually this high
+^ most of these are me updating this lol it's not actually this high
 
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 
