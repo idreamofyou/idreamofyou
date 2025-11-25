@@ -52,9 +52,9 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
 ## ˚ʚ♡ɞ˚ tracks :> ˚ʚ♡ɞ˚
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 
-[**my future - billie eilish**](https://open.spotify.com/track/2ygvZOXrIeVL4xZmAWJT2C)
+${\textsf{\color{#fc0394}[**my future - billie eilish**](https://open.spotify.com/track/2ygvZOXrIeVL4xZmAWJT2C)}}$
 
-[**always the same - tennis**](https://open.spotify.com/track/73vlEPZBb263PIiIJgOvZo)
+${\textsf{\color{#fc0394}[**always the same - tennis**](https://open.spotify.com/track/73vlEPZBb263PIiIJgOvZo)}}$
 
 <img width="182" height="182" alt="Screenshot 2025-11-25 12 53 05 AM (1)" src="https://github.com/user-attachments/assets/98e5c9c6-0cd4-447f-be35-85e98ac5b77d" /><img width="182" height="182" alt="Screenshot 2025-11-25 12 53 23 AM (1)" src="https://github.com/user-attachments/assets/7609cd3c-1285-4e6c-aaec-e2de611854ab" />
 
