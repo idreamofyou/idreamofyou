@@ -51,9 +51,9 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
   
  ![alt text](sparkles1.gif)
 
-[**my future - billie eilish**]((https://open.spotify.com/track/2ygvZOXrIeVL4xZmAWJT2C)).
+[**my future - billie eilish**](https://open.spotify.com/track/2ygvZOXrIeVL4xZmAWJT2C)
 
-[**pollen song - tennis**]((https://open.spotify.com/track/75mdqp7uH6ywAkigCJxtNm)).
+[**pollen song - tennis**](https://open.spotify.com/track/75mdqp7uH6ywAkigCJxtNm)
 
 
 
