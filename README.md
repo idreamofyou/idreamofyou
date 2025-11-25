@@ -1,3 +1,5 @@
+![alt text](sparkles1.gif)
+
 # 𝙝𝙚𝙡𝙡𝙤~
 
 # ![](https://komarev.com/ghpvc/?username=your-github-username&label=views+:3&color=fc0390)
@@ -6,6 +8,8 @@
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 
 ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜 𝚒𝚗 𝚖𝚢 𝚟𝚎𝚒𝚗𝚜....}}$
+
+![alt text](kaomoji1.gif)
 
   + interests: blue-eyed samurai, BNA, hannibal, the good place, new amsterdam, KDH, carmen sandiego, silent hill f, purrgatory, doodle world
   + everyone is welcome here! civils welcome :)
@@ -31,7 +35,8 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
 ### ˚ʚ♡ɞ˚ kins! ˚ʚ♡ɞ˚
   - ${\textsf{\color{#fc0394}𝚝𝚠𝚒𝚕𝚒𝚐𝚑𝚝 𝚜𝚙𝚊𝚛𝚔𝚕𝚎!}}$
   - ${\textsf{\color{#fc0394}𝚜𝚊𝚔𝚞𝚔𝚘 (𝚜𝚒𝚕𝚎𝚗𝚝 𝚑𝚒𝚕𝚕 𝚏)}}$
-  
+
+![alt text](sparkles1.gif)
 
 
 
