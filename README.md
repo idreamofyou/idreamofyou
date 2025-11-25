@@ -49,12 +49,16 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
 
   ![alt text](swirlsdivider.webp)
   
- ![alt text](sparkles1.gif)
+## ˚ʚ♡ɞ˚ tracks :> ˚ʚ♡ɞ˚
+─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 
 [**my future - billie eilish**](https://open.spotify.com/track/2ygvZOXrIeVL4xZmAWJT2C)
 
-[**pollen song - tennis**](https://open.spotify.com/track/75mdqp7uH6ywAkigCJxtNm)
+[**always the same - tennis**](https://open.spotify.com/track/73vlEPZBb263PIiIJgOvZo)
 
+![alt text](Screenshot 2025-11-25 12.53.05 AM.png)![alt text](Screenshot 2025-11-25 12.53.23 AM.png)
+
+ ![alt text](sparkles1.gif)
 
 
 
