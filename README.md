@@ -19,7 +19,7 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
   
   + will mostly be sitting near the **protree** 🌳
 
-  + *former anti* ❤‍🩹  
+  + *former anti* ❤‍🩹  (don't ship anything taboo, just hate seeing my friends get dogpiled)
 
   ![alt text](shootingstardivider.gif)
   
