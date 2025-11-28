@@ -2,7 +2,7 @@
 
 # 𝙝𝙚𝙡𝙡𝙤~
 
-# ![](https://komarev.com/ghpvc/?username=your-github-username&label=views+:3&color=fc0390)
+# ![](https://komarev.com/ghpvc/?username=idreamofyou&label=views+:3&color=fc0390)
 ^ weird lol it's not actually this high 😝
 
 ![alt text](pinkstarsdivider.webp)
