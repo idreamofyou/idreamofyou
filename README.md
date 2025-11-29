@@ -17,7 +17,7 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
   
   + everyone is welcome here! :)
   
-  + will mostly be sitting near the **protree** 🌳
+  + will mostly be sitting near the **tree** 🌳
 
   ![alt text](shootingstardivider.gif)
   
