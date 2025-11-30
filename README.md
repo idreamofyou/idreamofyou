@@ -19,11 +19,11 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
   
   + will mostly be sitting near the **tree** 🌳
 
-  ![alt text](shootingstardivider.gif)
+  ![alt text](stardivider.gif)
   
 ## free to interact with! will ignore any disputes
 
-<img src=stardivider.gif width="900">
+<img src=shootingstardivider.gif width="900">
 
 
 ## ˚ʚ♡ɞ˚ scroll 4 stuff :P ˚ʚ♡ɞ˚
