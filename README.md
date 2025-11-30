@@ -2,7 +2,7 @@
 
 # 𝙝𝙚𝙡𝙡𝙤~
 
-# ![](https://komarev.com/ghpvc/?username=idreamofyou&label=views+:3&color=fc0390&width="900")
+# ![](https://komarev.com/ghpvc/?username=idreamofyou&label=views+:3&color=fc0390&width="1000")
 ^ reset: 11/28/25 😝
 
 <img src=pinkstarsdivider.webp width="900">
