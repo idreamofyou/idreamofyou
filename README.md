@@ -1,4 +1,4 @@
-![alt text](sparkles1.gif)
+<img src=sparkles1.gif width="900">
 
 # 𝙝𝙚𝙡𝙡𝙤~
 
