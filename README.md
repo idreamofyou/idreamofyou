@@ -23,7 +23,7 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
   
 ## free to interact with! will ignore any disputes
 
-<img src=shootingstardivider.gif width="900">
+<img src=pastelstardivider.gif width="900">
 
 
 ## ˚ʚ♡ɞ˚ scroll 4 stuff :P ˚ʚ♡ɞ˚
@@ -35,6 +35,8 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
 <img src=beardivider.webp width="900">
 
 ### ˚ʚ♡ɞ˚ main yumes! (sharing) ˚ʚ♡ɞ˚
+
+![alt text](shootingstardivider.gif)
 
 <p align="center">
   <img src=hinakorabbitcute.png />
