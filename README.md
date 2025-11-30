@@ -18,8 +18,6 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
   + everyone is welcome here! :)
   
   + will mostly be sitting near the **tree** 🌳
-
-  ![alt text](stardivider.gif)
   
 ## free to interact with! will ignore any disputes
 
@@ -42,6 +40,7 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
   <img src=hinakorabbitcute.png />
 </p>
 
+![alt text](stardivider.gif)
   - ${\textsf{\color{#fc0394}𝚑𝚒𝚗𝚊𝚔𝚘! (𝚜𝚒𝚕𝚎𝚗𝚝 𝚑𝚒𝚕𝚕 𝚏)}}$ 
   - ${\textsf{\color{#fc0394}𝚖𝚒𝚣𝚞! (𝚋𝚕𝚞𝚎 𝚎𝚢𝚎 𝚜𝚊𝚖𝚞𝚛𝚊𝚒)}}$
 
@@ -53,6 +52,7 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
   <img src=chibitwibg.png />
 </p>
 
+  ![alt text](sweetsdivider.webp)
   - ${\textsf{\color{#fc0394}𝚝𝚠𝚒𝚕𝚒𝚐𝚑𝚝 𝚜𝚙𝚊𝚛𝚔𝚕𝚎!}}$
   - ${\textsf{\color{#fc0394}𝚜𝚊𝚔𝚞𝚔𝚘 (𝚜𝚒𝚕𝚎𝚗𝚝 𝚑𝚒𝚕𝚕 𝚏)}}$
   
@@ -68,8 +68,6 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
 
 ~ *click the pics above :3 ^^*
 
-
-<img src=sweetsdivider.webp width="900">
 
 <img src=sparkles1.gif width="900">
 
