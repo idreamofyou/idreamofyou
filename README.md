@@ -1,4 +1,4 @@
-e<img src=sparkles1.gif width="900">
+<img src=sparkles1.gif width="900">
 
 # 𝙝𝙚𝙡𝙡𝙤~
 
