@@ -50,14 +50,13 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
 </p>
 
   ![alt text](sweetsdivider.webp)
-  - ${\textsf{\color{#fc0394}𝚝𝚠𝚒𝚕𝚒𝚐𝚑𝚝 𝚜𝚙𝚊𝚛𝚔𝚕𝚎!}}$
-  - ${\textsf{\color{#fc0394}𝚜𝚊𝚔𝚞𝚔𝚘 (𝚜𝚒𝚕𝚎𝚗𝚝 𝚑𝚒𝚕𝚕 𝚏)}}$
-  - ${\textsf{\color{#fc0394}𝚜𝚊𝚍 𝚎𝚗𝚊 (𝚎𝚗𝚊)}}$
+  - ${\textsf{\color{#fc0394}𝚝𝚠𝚒𝚕𝚒𝚐𝚑𝚝 𝚜𝚙𝚊𝚛𝚔𝚕𝚎! (mlp)}}$
   
   <img src=swirlsdivider.webp width="900">
   
 ## ˚ʚ♡ɞ˚ tracks :> ˚ʚ♡ɞ˚
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
+
 <img src=shootingstardivider.gif width="210">
 
 [<img width="182" height="182" alt="Screenshot 2025-11-25 12 53 05 AM (1)" src="https://github.com/user-attachments/assets/98e5c9c6-0cd4-447f-be35-85e98ac5b77d" />](https://open.spotify.com/track/2ygvZOXrIeVL4xZmAWJT2C)[<img width="182" height="182" alt="Screenshot 2025-11-25 12 53 23 AM (1)" src="https://github.com/user-attachments/assets/7609cd3c-1285-4e6c-aaec-e2de611854ab" />](https://open.spotify.com/track/73vlEPZBb263PIiIJgOvZo)[<img width="182" height="180" alt="image" src="https://github.com/user-attachments/assets/71b4eb95-5342-436d-abf4-2e5c3ff0e276" />](https://open.spotify.com/track/09RamrocZneYcLYLRIxYha)[<img width="182" height="180" alt="image" src="https://github.com/user-attachments/assets/04749877-a21b-4e1a-a51d-284cead8b84c" />](https://open.spotify.com/track/57C485VPv0kP1XASAwjEYV)[<img width="182" height="180" alt="image" src="https://github.com/user-attachments/assets/0f76d15c-c3b9-471f-bf47-ccc2bc41a4a1" />](https://open.spotify.com/track/7wfOwy1NErjzBYRf1HnDPb)[<img width="179" height="170" alt="image" src="https://github.com/user-attachments/assets/379d4190-3c4d-466e-9079-94eab606c39d" />](https://open.spotify.com/track/1ItaFV8IGkb33gXFI2c5Ps)
@@ -69,7 +68,7 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
 
 <img src=sparkles1.gif width="900">
 
-<img src=beardivider.webp width="900">
+<img src=beardivider.webp width="200">
 
 
 
