@@ -3,7 +3,7 @@
 # 𝚑𝚎𝚕𝚕𝚘!
 
 # ![](https://komarev.com/ghpvc/?username=idreamofyou&label=views+:3&color=fc0390)
-^ reset: 11/28/25 😝
+^ 𝚛𝚎𝚜𝚎𝚝: 𝟷𝟷/𝟸𝟾/𝟸𝟻 😝
 
 <img src=pinkstarsdivider.webp width="900">
 
@@ -13,17 +13,17 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
 
 ![alt text](kaomoji1.gif)
 
-  + **interests**: blue-eyed samurai, BNA, hannibal, the good place, new amsterdam, KDH, carmen sandiego, silent hill f, purrgatory, doodle world, ENA
+  +**𝚒𝚗𝚝𝚎𝚛𝚎𝚜𝚝𝚜**: 𝚋𝚕𝚞𝚎-𝚎𝚢𝚎𝚍 𝚜𝚊𝚖𝚞𝚛𝚊𝚒, 𝙱𝙽𝙰, 𝚑𝚊𝚗𝚗𝚒𝚋𝚊𝚕, 𝚝𝚑𝚎 𝚐𝚘𝚘𝚍 𝚙𝚕𝚊𝚌𝚎, 𝚗𝚎𝚠 𝚊𝚖𝚜𝚝𝚎𝚛𝚍𝚊𝚖, 𝙺𝙳𝙷, 𝚌𝚊𝚛𝚖𝚎𝚗 𝚜𝚊𝚗𝚍𝚒𝚎𝚐𝚘, 𝚜𝚒𝚕𝚎𝚗𝚝 𝚑𝚒𝚕𝚕 𝚏, 𝚙𝚞𝚛𝚛𝚐𝚊𝚝𝚘𝚛𝚢, 𝚍𝚘𝚘𝚍𝚕𝚎 𝚠𝚘𝚛𝚕𝚍, 𝙴𝙽𝙰     
   
-  + everyone is welcome here! :)
+  + 𝚎𝚟𝚎𝚛𝚢𝚘𝚗𝚎 𝚒𝚜 𝚠𝚎𝚕𝚌𝚘𝚖𝚎 𝚑𝚎𝚛𝚎! :)
 
   
-## free to interact with! will ignore any disputes
+## 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝 𝚠𝚒𝚝𝚑! 𝚠𝚒𝚕𝚕 𝚒𝚐𝚗𝚘𝚛𝚎 𝚊𝚗𝚢 𝚍𝚒𝚜𝚙𝚞𝚝𝚎𝚜
 
 <img src=pastelstardivider.gif width="900">
 
 
-## ˚ʚ♡ɞ˚ scroll 4 stuff :P ˚ʚ♡ɞ˚
+## ˚ʚ♡ɞ˚ 𝚜𝚌𝚛𝚘𝚕𝚕 𝟺 𝚜𝚝𝚞𝚏𝚏 :P ˚ʚ♡ɞ˚
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 
 ![alt text](omniblinkie.webp)![alt text](sleepyseal.webp)![alt text](sweetdreams.webp)![alt text](dreaming.webp)![alt text](galaxyblinkie.webp)![alt text](fanficfanatic.webp)![alt text](ilovemy.webp)![alt text](bestonlinebuddies.gif)![alt text](awkward.webp)![alt text](brainfog.gif)![alt text](pinkpinkilovepink.webp)![alt text](ilovepurple.gif)![alt text](idreaminpixels.webp)![alt text](strawberrysunday.gif)![alt text](smiley.gif)![alt text](blinkiesCafe-d5.gif)![alt text](ignoranceisbliss.webp)![alt text](ilovethesea.webp)![alt text](mildlyoffensive.webp)![alt text](ponycollector.webp)![alt text](twiblinkie.webp)![alt text](twinkletwinkle.webp)![alt text](usahanablinkie.webp)![alt text](whaleofatime.webp)![alt text](yayaya.webp)![alt text](belladona.gif)
@@ -31,7 +31,7 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
 
 <img src=pinkstarsdivider.webp width="900">
 
-### ˚ʚ♡ɞ˚ main yumes! (sharing) ˚ʚ♡ɞ˚
+### ˚ʚ♡ɞ˚ 𝚖𝚊𝚒𝚗 𝚢𝚞𝚖𝚎𝚜! (𝚜𝚑𝚊𝚛𝚒𝚗𝚐) ˚ʚ♡ɞ˚
 
 <p align="center">
   <img src=hinakorabbitcute.png />
@@ -43,7 +43,7 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
 
   <img src=pastelstardivider.gif width="900">
 
-### ˚ʚ♡ɞ˚ main kins! ˚ʚ♡ɞ˚
+### ˚ʚ♡ɞ˚ 𝚖𝚊𝚒𝚗 𝚔𝚒𝚗𝚜! ˚ʚ♡ɞ˚
  
 <p align="center">
   <img src=chibitwibg.png />
@@ -54,7 +54,7 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
   
   <img src=swirlsdivider.webp width="900">
   
-## ˚ʚ♡ɞ˚ tracks :> ˚ʚ♡ɞ˚
+## ˚ʚ♡ɞ˚ 𝚝𝚛𝚊𝚌𝚔𝚜 :> ˚ʚ♡ɞ˚
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 
 <img src=shootingstardivider.gif width="200">
@@ -65,7 +65,7 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
 
 
 <img src=shootingstardivider.gif width="210">
-~ *click the pics above :3 ^^*
+~ *𝚌𝚕𝚒𝚌𝚔 𝚝𝚑𝚎 𝚙𝚒𝚌𝚜 𝚊𝚋𝚘𝚟𝚎 :𝟹 ^^*
 
 
 <img src=sparkles1.gif width="900">
