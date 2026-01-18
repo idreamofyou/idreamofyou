@@ -1,6 +1,6 @@
 <img src=sparkles1.gif width="900">
 
-# 𝙝𝙚𝙡𝙡𝙤~
+# 𝚑𝚎𝚕𝚕𝚘!
 
 # ![](https://komarev.com/ghpvc/?username=idreamofyou&label=views+:3&color=fc0390)
 ^ reset: 11/28/25 😝
