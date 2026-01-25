@@ -3,7 +3,7 @@
 # 𝚑𝚎𝚕𝚕𝚘!
 
 # ![](https://komarev.com/ghpvc/?username=idreamofyou&label=views+:3&color=fc0390)
-^ 𝚛𝚎𝚜𝚎𝚝: 𝟷𝟷/𝟸𝟾/𝟸𝟻 😝
+^ 𝚛𝚎𝚜𝚎𝚝: 𝟷𝟷/𝟸𝟾/𝟸𝟻 
 
 <img src=pinkstarsdivider.webp width="900">
 
@@ -50,7 +50,7 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
 </p>
 
   ![alt text](sweetsdivider.webp)
-  - ${\textsf{\color{#fc0394}𝚝𝚠𝚒𝚕𝚒𝚐𝚑𝚝 𝚜𝚙𝚊𝚛𝚔𝚕𝚎! (mlp)}}$
+  - ${\textsf{\color{#fc0394}𝚝𝚠𝚒𝚕𝚒𝚐𝚑𝚝 𝚜𝚙𝚊𝚛𝚔𝚕𝚎! (𝚖𝚕𝚙)}}$
   
   <img src=swirlsdivider.webp width="900">
   
