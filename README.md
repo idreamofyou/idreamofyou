@@ -26,12 +26,12 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
 ## ˚ʚ♡ɞ˚ 𝚜𝚌𝚛𝚘𝚕𝚕 𝟺 𝚜𝚝𝚞𝚏𝚏 :P ˚ʚ♡ɞ˚
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 
-![alt text](sleepyseal.webp)![alt text](sweetdreams.webp)![alt text](dreaming.webp)![alt text](galaxyblinkie.webp)![alt text](fanficfanatic.webp)![alt text](ilovemy.webp)![alt text](bestonlinebuddies.gif)![alt text](awkward.webp)![alt text](brainfog.gif)![alt text](pinkpinkilovepink.webp)![alt text](ilovepurple.gif)![alt text](idreaminpixels.webp)![alt text](strawberrysunday.gif)![alt text](smiley.gif)![alt text](blinkiesCafe-d5.gif)![alt text](ignoranceisbliss.webp)![alt text](ilovethesea.webp)![alt text](mildlyoffensive.webp)![alt text](ponycollector.webp)![alt text](twiblinkie.webp)![alt text](twinkletwinkle.webp)![alt text](usahanablinkie.webp)![alt text](whaleofatime.webp)![alt text](yayaya.webp)![alt text](belladona.gif)
+![alt text](sleepyseal.webp)![alt text](sweetdreams.webp)![alt text](dreaming.webp)![alt text](galaxyblinkie.webp)![alt text](ilovemy.webp)![alt text](bestonlinebuddies.gif)![alt text](awkward.webp)![alt text](brainfog.gif)![alt text](pinkpinkilovepink.webp)![alt text](ilovepurple.gif)![alt text](idreaminpixels.webp)![alt text](strawberrysunday.gif)![alt text](smiley.gif)![alt text](blinkiesCafe-d5.gif)![alt text](ignoranceisbliss.webp)![alt text](ilovethesea.webp)![alt text](mildlyoffensive.webp)![alt text](ponycollector.webp)![alt text](twiblinkie.webp)![alt text](twinkletwinkle.webp)![alt text](usahanablinkie.webp)![alt text](whaleofatime.webp)![alt text](yayaya.webp)![alt text](belladona.gif)
 
 
 <img src=pinkstarsdivider.webp width="900">
 
-### ˚ʚ♡ɞ˚ 𝚖𝚊𝚒𝚗 𝚢𝚞𝚖𝚎𝚜! (𝚜𝚑𝚊𝚛𝚒𝚗𝚐) ˚ʚ♡ɞ˚
+### ˚ʚ♡ɞ˚ favorites! ˚ʚ♡ɞ˚
 
 <p align="center">
   <img src=hinakorabbitcute.png />
@@ -42,8 +42,6 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
   - ${\textsf{\color{#fc0394}𝚖𝚒𝚣𝚞! (𝚋𝚕𝚞𝚎 𝚎𝚢𝚎 𝚜𝚊𝚖𝚞𝚛𝚊𝚒)}}$
 
   <img src=pastelstardivider.gif width="900">
-
-### ˚ʚ♡ɞ˚ 𝚖𝚊𝚒𝚗 𝚔𝚒𝚗𝚜! ˚ʚ♡ɞ˚
  
 <p align="center">
   <img src=chibitwibg.png />
