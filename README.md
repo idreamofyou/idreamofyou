@@ -14,8 +14,6 @@
 ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜 𝚒𝚗 𝚖𝚢 𝚟𝚎𝚒𝚗𝚜....}}$
 
 ![alt text](kaomoji1.gif)
-
-  + **𝚒𝚗𝚝𝚎𝚛𝚎𝚜𝚝𝚜**: 𝚋𝚕𝚞𝚎-𝚎𝚢𝚎𝚍 𝚜𝚊𝚖𝚞𝚛𝚊𝚒, 𝙱𝙽𝙰, 𝚑𝚊𝚗𝚗𝚒𝚋𝚊𝚕, 𝚝𝚑𝚎 𝚐𝚘𝚘𝚍 𝚙𝚕𝚊𝚌𝚎, 𝚗𝚎𝚠 𝚊𝚖𝚜𝚝𝚎𝚛𝚍𝚊𝚖, 𝙺𝙳𝙷, 𝚌𝚊𝚛𝚖𝚎𝚗 𝚜𝚊𝚗𝚍𝚒𝚎𝚐𝚘, 𝚜𝚒𝚕𝚎𝚗𝚝 𝚑𝚒𝚕𝚕 𝚏, 𝚙𝚞𝚛𝚛𝚐𝚊𝚝𝚘𝚛𝚢, 𝚍𝚘𝚘𝚍𝚕𝚎 𝚠𝚘𝚛𝚕𝚍, 𝙴𝙽𝙰     
   
   + 𝚎𝚟𝚎𝚛𝚢𝚘𝚗𝚎 𝚒𝚜 𝚠𝚎𝚕𝚌𝚘𝚖𝚎 𝚑𝚎𝚛𝚎! :)
 
@@ -28,7 +26,7 @@ ${\textsf{\color{#fc0394}𝚒 𝚏𝚎𝚕𝚝 𝚝𝚑𝚎 𝚜𝚝𝚊𝚛𝚜
 ## ˚ʚ♡ɞ˚ 𝚜𝚌𝚛𝚘𝚕𝚕 𝟺 𝚜𝚝𝚞𝚏𝚏 :P ˚ʚ♡ɞ˚
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 
-![alt text](omniblinkie.webp)![alt text](sleepyseal.webp)![alt text](sweetdreams.webp)![alt text](dreaming.webp)![alt text](galaxyblinkie.webp)![alt text](fanficfanatic.webp)![alt text](ilovemy.webp)![alt text](bestonlinebuddies.gif)![alt text](awkward.webp)![alt text](brainfog.gif)![alt text](pinkpinkilovepink.webp)![alt text](ilovepurple.gif)![alt text](idreaminpixels.webp)![alt text](strawberrysunday.gif)![alt text](smiley.gif)![alt text](blinkiesCafe-d5.gif)![alt text](ignoranceisbliss.webp)![alt text](ilovethesea.webp)![alt text](mildlyoffensive.webp)![alt text](ponycollector.webp)![alt text](twiblinkie.webp)![alt text](twinkletwinkle.webp)![alt text](usahanablinkie.webp)![alt text](whaleofatime.webp)![alt text](yayaya.webp)![alt text](belladona.gif)
+![alt text](sleepyseal.webp)![alt text](sweetdreams.webp)![alt text](dreaming.webp)![alt text](galaxyblinkie.webp)![alt text](fanficfanatic.webp)![alt text](ilovemy.webp)![alt text](bestonlinebuddies.gif)![alt text](awkward.webp)![alt text](brainfog.gif)![alt text](pinkpinkilovepink.webp)![alt text](ilovepurple.gif)![alt text](idreaminpixels.webp)![alt text](strawberrysunday.gif)![alt text](smiley.gif)![alt text](blinkiesCafe-d5.gif)![alt text](ignoranceisbliss.webp)![alt text](ilovethesea.webp)![alt text](mildlyoffensive.webp)![alt text](ponycollector.webp)![alt text](twiblinkie.webp)![alt text](twinkletwinkle.webp)![alt text](usahanablinkie.webp)![alt text](whaleofatime.webp)![alt text](yayaya.webp)![alt text](belladona.gif)
 
 
 <img src=pinkstarsdivider.webp width="900">
